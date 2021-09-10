@@ -1,5 +1,7 @@
 ## Him 翻译
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
+
+![avatar](https://i.loli.net/2021/09/11/4KgWxeUG1NE5dSM.jpg)
 <br>
 <br>
 
